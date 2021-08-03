@@ -1,1 +1,2 @@
 hoge
+AI komusume namaiki
